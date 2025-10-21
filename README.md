@@ -12,6 +12,4 @@ made me feel so safe bout mine
 
 Deep springs took you and where are you now? 
 
-The hanging T, the boarding house, you are there somewhere with your curls and kind face under a cowboy hat 
 
-your Kerouac 
