@@ -4,7 +4,7 @@ Cassidy I still have your postcards
 
 And I miss you 
 
-or maybe the semiotic oxford cobblestones in the rain at 3.00 am by the radcliff camera and the way life felt for one breif moment 
+or maybe the semiotic oxford cobblestones in the rain at 3.00 am by the radcliffe camera and the way life felt for one breif moment 
 
 You by the hanging t - your obsession -
 
