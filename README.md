@@ -1,5 +1,3 @@
-# Howl-Ginsberg-I-miss-u-izzy-
-
 Cassidy I still have your postcards
 
 And I miss you 
